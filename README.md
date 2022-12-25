@@ -1,3 +1,5 @@
-MrSanyaShanin@yandex.ru, VISHNYA#7082
+email: MrSanyaShanin@yandex.ru
+tg: @Vishnerry
+discord: VISHNYA#7082
 
 
